@@ -1,0 +1,1 @@
+# The-Mathematical-Core-of-the-Tanfarid-Quantum-Thermodynamic-Universe-TQTU-
